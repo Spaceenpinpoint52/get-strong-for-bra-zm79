@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots ultimate Scripts is the best get strong for brainrots Script, featuring instant win and anti-ban. Safe and powerful for all
 
 
 
